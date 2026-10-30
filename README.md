@@ -1,0 +1,1 @@
+# galgamewhy.github.io
